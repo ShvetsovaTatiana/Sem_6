@@ -1,3 +1,3 @@
 # Sem_6
 
-Anna Kayhanidi
+Anna Kayhanidi - AnnKay
